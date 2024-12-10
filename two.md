@@ -2,10 +2,7 @@ Chickpea and Spinach Curry
 ===========================
 
 Ingredients:
-- 1 can of chickpeas, drained and rinsed
-- 1 can of coconut milk
-- 2 cups fresh spinach
-- 1 onion, diced
+
 - 3 cloves of garlic, minced
 - 1 tbsp curry powder
 - 1 tsp ground cumin
