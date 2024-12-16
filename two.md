@@ -1,5 +1,6 @@
 Chickpea and Spinach Curry
 ===========================
+ממש טעים יאמיייי
 
 Ingredients:
 
@@ -10,7 +11,6 @@ Ingredients:
 - 1/2 tsp chili flakes (optional)
 - 1 tbsp olive oil
 - Salt and pepper to taste
-- Cooked rice or naan for serving
 
 Preparation:
 1. Heat the olive oil in a pan over medium heat. Add the diced onion and sauté until soft, about 5 minutes.
