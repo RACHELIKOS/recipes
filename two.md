@@ -3,8 +3,8 @@ Chickpea and Spinach Curry
 
 Ingredients:
 
-- 3 cloves of garlic, minced
-- 1 tbsp curry powder
+- 1 cloves of garlic, minced
+- 2 tbsp curry powder
 - 1 tsp ground cumin
 - 1/2 tsp turmeric
 - 1/2 tsp chili flakes (optional)
