@@ -14,7 +14,6 @@ Ingredients:
 - 8 small corn tortillas
 
 
-ממש טעים כדאי לנסות
 
 
 
