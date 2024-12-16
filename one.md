@@ -12,7 +12,6 @@ Ingredients:
 - 1/2 tsp chili powder
 - Salt and pepper to taste
 - 8 small corn tortillas
-- Optional: salsa, hot sauce, vegan sour cream
 
 Preparation:
 1. In a bowl, combine the black beans, corn, avocado, cilantro, and red onion.
