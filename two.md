@@ -1,7 +1,7 @@
 Chickpea and Spinach Curry
 ===========================
 ממש טעים יאמיייי
-
+קונפלוקט
 Ingredients:
 
 - 1 cloves of garlic, minced
